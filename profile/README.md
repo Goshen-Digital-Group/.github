@@ -37,3 +37,7 @@ Connect with us, contribute, or collaborate!
 > **Building the decentralized future, together.**
 
 [🌐 Website](#) • [🐦 Twitter](#) • [📧 Contact](#)
+
+---
+
+**Want to build something in Web3? We are open for commissions! Please [contact 0xteksage](https://t.me/real0xteksage) to discuss
